@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Wanghs915
+- 😍 I like playing badminton, and I' m especially like playing video-games! 
+- 👀 I’m interested in the machine learning, and algorithm.
+- 🌱 I’m currently learning C++, python and Java.
+- 💞️ I’m looking to collaborate on Christmas🎄🎄
+- 📫 My phone number is 18310399895, and you can reach me by tht phone.
